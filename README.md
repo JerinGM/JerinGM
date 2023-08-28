@@ -12,4 +12,4 @@ Let's talk strategy. My journey isn't just a rollercoaster 🎢; it's an entire 
 
 Speaking of magic 🪄, I've always believed in the spellbinding power of resilience. Hurdles in life are mere ingredients for the potion of growth 🚀. I'm not just stepping 🪜 into tech; I'm conjuring a symphony 🎹 of innovation.
 
-So, what's my vision? It's a fusion of dream and will, a masterpiece painted with determination. If you're into shaping the future, let's team up and craft a saga where we solve real world problems through an innovating product 👨‍💻
+So, what's my vision? It's a fusion of dream and will, a masterpiece painted with determination. If you're into shaping the future, let's team up and craft a saga where we solve real world problems through an innovative product 👨‍💻
