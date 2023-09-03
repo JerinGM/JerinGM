@@ -1,6 +1,6 @@
 Ahoy ⛵ there!
 
-A journey of over 14 years, where I've danced 💃 through the labyrinth of customer centricity, wearing the hat 🤠 of support and success leadership for some amazing orgs. If you've ever thought customer handling is an art, well, I've practically been Picasso! 🎨🖌️
+About me: A journey of over 14 years, where I've danced 💃 through the labyrinth of customer centricity, wearing the hat 🤠 of support and success leadership for some amazing orgs. If you've ever thought customer handling is an art, well, I've practically been Picasso! 🎨🖌️
 
 But hold your horses 🐎, as my compass 🧭 is pointing to new stars ⭐. Ever heard of a seasoned customer centric virtuoso turning into a tech aficionado? That's me! Armed with curiosity and a problem solving mindset, I'm diving headfirst into the tech world.
 
