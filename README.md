@@ -6,4 +6,4 @@ My journey has been a thrilling ride 🎢, from navigating the intricacies of cu
 
 I firmly believe that it's never too late to pursue your dreams 🌃, and for me, that dream is to make a meaningful impact through technology 💻. I'm excited to collaborate with like-minded individuals and contribute to projects that push the boundaries of what's possible.
 
-So, if you're looking for a dedicated, adaptable, and creative tech-head to elevate your projects to new heights, let's connect and kickstart the rocketship! 🚀🌟
+So, if you're looking for a dedicated, adaptable, and creative tech-head to elevate your projects to new heights, let's connect and build together 🚀🌟
